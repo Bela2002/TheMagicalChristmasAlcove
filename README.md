@@ -53,7 +53,19 @@ It stands as a tribute to how creativity and teamwork can bring magical moments 
 
 ## 📷 Gallery or Video
 
-> _Add screenshots, renders, or a link to your final animation video if available._
+![image](https://github.com/user-attachments/assets/c68ba093-25ff-4bda-8974-76fdc08baf4b)
+
+![image](https://github.com/user-attachments/assets/df3a91ae-0ecd-4000-bcc6-4505f3dbddc7)
+
+![image](https://github.com/user-attachments/assets/42d0ce2e-bd8c-47d7-a0ad-fd647a30f37e)
+
+![image](https://github.com/user-attachments/assets/32741a60-b652-4051-a54e-93e73c7a1fc2)
+
+![image](https://github.com/user-attachments/assets/65d5056e-69c4-4705-a758-494b262554f3)
+
+![image](https://github.com/user-attachments/assets/9a096748-02ed-48c1-aa09-9c02c495c3e1)
+
+![image](https://github.com/user-attachments/assets/4e06e334-7795-4fd3-a364-a370c01d0c42)
 
 ---
 
