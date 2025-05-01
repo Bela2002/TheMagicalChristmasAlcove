@@ -51,7 +51,7 @@ It stands as a tribute to how creativity and teamwork can bring magical moments 
 
 ---
 
-## 📷 Gallery or Video
+## 📷 Gallery
 
 ![image](https://github.com/user-attachments/assets/c68ba093-25ff-4bda-8974-76fdc08baf4b)
 
